@@ -1,5 +1,4 @@
-![](<img width="3128" height="1980" alt="Untitled489_20260722194631" src="https://github.com/user-attachments/assets/ba4f3327-0c6d-41c7-8bf0-1b282a426978" />
-)
+![](Untitled489_20260722194631)
 <!--
 **madipaws/madipaws** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

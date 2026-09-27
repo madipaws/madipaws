@@ -6,7 +6,8 @@
 ﾉ  taken ♡  /ᐠ - ˕ -マ ‎‎ ‎ily green names ! 
 
 ex friends, doubles, shadow simps dni ♡
-( ﾟｏ⌒)
+
+(^_-)≡☆ didsystem, bodily minor
 
 
 ![](IMG_7695.gif)

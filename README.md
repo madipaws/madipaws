@@ -6,7 +6,7 @@
 ﾉ  taken ♡  /ᐠ - ˕ -マ ‎‎ ‎ily green names ! 
 
 
-(^_-)≡☆ didsystem, bodily minor
+(^_-)≡☆  ׅdidsystem, bodily minor
 
 
 ![](IMG_7695.gif)

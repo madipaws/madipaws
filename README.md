@@ -8,6 +8,6 @@
 
 (^_-)≡☆  ׅdidsystem, bodily minor
 
-note :: i often get severely anxious initiating conversation/interaction, so if i don’t approach you, please don’t take it personally. i’m a very nervous dude.
+${\color{red}\text{((・・;)ゞ i often get severely anxious initiating conversation/interaction, so if i don’t approach you, please don’t take it personally. i’m a very nervous dude.}}$
 
 ![](IMG_7695.gif)
